@@ -6,4 +6,6 @@ Espero que goste!
 
 `Me chamo emilly, mas pode me chamar de Emy😄`
 
-[@Nicota](htts://www.instragram.com/escola.donanicota/)
+estudo na escola [@Nicota](https://www.instragram.com/escola.donanicota/) 🏫
+
+![](https://media.tenor.com/GGCEtZsyJDQAAAAM/princess-frog.gif)     
